@@ -5,12 +5,4 @@ This will get more OP, don't worry. There's a huge update coming. Join the disco
 --Discord Server: https://discord.gg/zBXguS9DyZ
 
 
-
-
-
-
-
-
-
-
-                    --Youtube Channel: https://www.youtube.com/@clipz6496
+ --Youtube Channel: https://www.youtube.com/@clipz6496
